@@ -7,7 +7,7 @@
 
 3.婚姻证明复印件（核对原件）；
 
-4.房产情况核查证明原件；http://hz.zjzwfw.gov.cn
+4.房产情况核查证明原件；http://hz.zjzwfw.gov.cn ；http://hz.bendibao.com/news/2016108/66868.shtm
 
 5.征信报告原件；www.pbccrc.org.cn 网上拉取
 
